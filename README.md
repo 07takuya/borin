@@ -7,3 +7,5 @@
 今川焼と回転焼き
 
 書き換える
+
+faaaaaaaaaaaaaahoooooooooooooooo
